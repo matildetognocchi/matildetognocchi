@@ -1,8 +1,8 @@
 👋 Hi, I’m @matildetognocchi.
 
-👀 I’m interested in iOS apps development.
+👀 I’m interested in iOS app development.
 
-🌱 I’m currently expanding my knowlege and strenghtening my skills by consuming online content and practicing alongside.
+🌱 I’m currently expanding my knowledge and strengthening my skills by consuming online content and practising alongside.
 
 ⭐️ In my free time I enjoy practicing pilates and watching anime.
 
