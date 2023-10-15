@@ -1,6 +1,6 @@
 👋 Hi, I’m @matildetognocchi.
 
-👀 I’m interested in iOS app development.
+👀 I’m passionate about iOS app development.
 
 🌱 I’m currently expanding my knowledge and strengthening my skills by consuming online content and practising alongside.
 
